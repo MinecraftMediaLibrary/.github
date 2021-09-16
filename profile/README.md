@@ -1,1 +1,1 @@
-![carbon](https://user-images.githubusercontent.com/40838203/133520457-2fad9e16-9c83-41cd-91c0-d7aec9de479f.png)
+![carbon](https://user-images.githubusercontent.com/40838203/133611437-c8f88b8d-c34b-4450-a44e-67c599689bbf.png)
